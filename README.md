@@ -1,5 +1,5 @@
 - 👋 Hi, I’m Pranjali
-- 👀 I’m interested in fitness and technology
+- 👀 I’m interested in sports and technology
 - 🌱 I’m currently learning web development
 - 📫 How to reach me [contact info]
 - 😄 Pronouns: she/her
